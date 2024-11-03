@@ -11,7 +11,7 @@ I believe the reasons for the democrat’s inevitable defeat are evident and I w
 
 The two-party system of the United States makes it difficult for democrats to provide a policy that is compelling to the majority. At the same time it allows Donald Trump to leverage the discontent of the right-leaning Americans, all the way from far right to moderate conservatives.
 
-This is because the two-party system is not granular enough to capture the wide variety of political views that people currently hold. In Europe - and specifically in Finland, the political system I am most familiar with - it is typical to have many parties to choose from. For example in Finland, the 200 seats in the parliament are divided between X parties, the Y of which constitute the current government. These parties and their representations are provided below:
+This is because the two-party system is not granular enough to capture the wide variety of political views that people currently hold. In Europe - and specifically in Finland, the political system I am most familiar with - it is typical to have many parties to choose from. For example in Finland, the 200 seats in the parliament are divided between 10 parties, the 4 of which constitute the current government. These parties and their representations are provided below:
 
 
 | Party             	    | Political stance    	            | Representatives	    | Position   |
