@@ -3,7 +3,7 @@ title: "Democrats will lose the 2024 presidential election, let met tell you why
 date: 2024-11-03
 ---
 
-Today, on 3rd of November, two days before the election day, it has become evident that the democrats will lose the 2024 presidential election and Donald Trump will be elected as the 47th president of the United States. It seems that many, even seemingly smart organizations, have a hard time grasping the reality and - as concerning as it is - the reasons behind this outcome. 
+Today, on 3rd of November, two days before the election day, it has become evident that the democrats will lose the 2024 presidential election and Donald Trump will be elected as the 48th president of the United States. It seems that many, even seemingly smart organizations, have a hard time grasping the reality and - as concerning as it is - the reasons behind this outcome. 
 
 I believe the reasons for the democrat’s inevitable defeat are evident and I will shortly outline them here, in no specific order.
 
@@ -54,11 +54,11 @@ Trump’s campaign slogan: “Make America great again” is excellent. But what
 
 # Weak social media presence
 
-The democrat’s failure to provide emotionally engaging alternative is painfully evident when we compare the candidates feeds in X.com. As of today, on 3rd of November, most of the Harris’ posts contain the words “Donald Trump”. This is bad advertisting.
+The democrat’s failure to provide emotionally engaging alternative is painfully evident when we compare the candidates feeds in X. As of today, on 3rd of November, most of the Harris’ posts contain the words “Donald Trump”. This is bad advertisting.
 
 Have you seen Apple market it’s products by referencing Samsung? No, you have not and the reason is clear: if you have a superior product and superior brand, mentioning your competitors only weakens you. If you have something far better than the competitors, why would you give them free advertising? By acknowledging them you only end up lifting them up. By not acknowledging them you demonstrate that they are so insignificant that you don’t even think about them.
 
-So what on earth is Kamala Harris’s campaign doing here? Why is he talking about Donald Trump instead of the better future she can lead her voters to?
+So what on earth is Kamala Harris´ campaign doing here? Why is he talking about Donald Trump instead of the better future she can lead her voters to?
 
 # Sticking with Joe Biden
 
