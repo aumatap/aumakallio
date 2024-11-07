@@ -3,7 +3,7 @@ title: "Democrats will lose the 2024 presidential election, let met tell you why
 date: 2024-11-03
 ---
 
-Today, on 3rd of November, two days before the election day, it has become evident that the democrats will lose the 2024 presidential election and Donald Trump will be elected as the 48th president of the United States. It seems that many, even seemingly smart organizations, have a hard time grasping the reality and - as concerning as it is - the reasons behind this outcome. 
+Today, on 3rd of November, two days before the election day, it has become evident that the democrats will lose the 2024 presidential election and Donald Trump will be elected as the 47th president of the United States. It seems that many, even seemingly smart organizations, have a hard time grasping the reality and - as concerning as it is - the reasons behind this outcome. 
 
 I believe the reasons for the democrat’s inevitable defeat are evident and I will shortly outline them here, in no specific order.
 
