@@ -1,5 +1,5 @@
 ---
-title: "Democrats will lose the 2024 presidential election, let met tell you why"
+title: "Democrats will lose the 2024 presidential election, let me tell you why"
 date: 2024-11-03
 ---
 
