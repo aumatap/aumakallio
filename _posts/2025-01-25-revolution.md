@@ -1,4 +1,4 @@
-At this point it is evident that a revolution is inevitable. 
+At this point it is evident that a revolution is inevitable. That is because:
 
 1. Capital inequality has risen -- or at this point exceeded -- pre first world war levels.
 2. Policies such as New Deal are impossible because -- unlike ever before -- capital inequality is a global phenomenon that cannot be solved with national legislation but would require international co-ordination.
